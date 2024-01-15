@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Milesmiles3
+- 👀 I’m interested being more than a friend.
+- 🌱 I’m currently learning you😅
+- 💞️ I’m looking to win you.
+- 📫 How to reach me 0741255898
+- 😄 Pronouns: Miles
+- ⚡ Fun fact: love you😘.
